@@ -7,7 +7,7 @@ Graphic and Multimedia Software Student
 I am a first year student from University Technology Malaysia (UTM) under the course Bachelor of Computer Science (Graphic and Multimedia Software) with Honours. Someone who's pursuing to be an excellent Developer with a great coding and programming skills. Someone who's great with teamwork and leadership which can be a great help for future project. I am also talented in creating a design, editing and videographing and presenting. Someone who wishes to contribute more into creating a better working environment and meet new and nice people.
 
 * 🌍  I'm based in Malaysia
-* ✉️  You can contact me at [safirasofea@gmail.com](mailto:safirasofea@gmail.com)
+* ✉️  You can contact me at [wtnurulazwasafira@graduate.utm.my](mailto:wtnurulazwasafira@graduate.utm.my)
 * 🧠  I'm currently learning Adobe Photoshop and illustrator for my upcoming project under TEDxUTM as a member of Graphic Design Department
 * 👥  I'm looking to collaborate on Website development
 * 💬  Ask me about I'm a Singer and AJK Multimedia under KIRANA RAZAK club

@@ -27,7 +27,7 @@ Positions
   * Penolonng Ketua Praktikum F3P2
   * AJK Keselamatan Kokurikulum F3P2
 * High School : Sek. Men. Keb. Tuanku Muhammad (TMS)
-  * Penolong Pemimpin Rakan Sebaya
+  * Penolong Ketua Pengawas Sekolah
   * Pengerusi Sukan Permainan Netball
   * Naib Pengerusi Kelab Komputer dan Robotik
 
